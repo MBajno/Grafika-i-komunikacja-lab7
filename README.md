@@ -1,1 +1,0 @@
-# Grafika-i-komunikacja-lab7
